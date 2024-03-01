@@ -1,2 +1,2 @@
 # Hi I'm Vijay Kare AKA Kerian Grave
-# I have shared my one of the few Projects
+# I have shared one of my few projects of mine. Do check Out!
